@@ -10,6 +10,7 @@ I play drums for FROLIC, a thrash metal band based out of Hayward, CA.
 
 Let me take this moment to encourage you to check FROLIC out on Spotify!
 https://open.spotify.com/artist/0pxrwlhCe3VmWsgPRADoo3
+And follow us on Instagram: https://www.instagram.com/frolicbayarea/
 
 Since I also work in tech full-time, it can be hard to have the motivation
 to practice every single day.
